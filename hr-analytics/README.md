@@ -1,1 +1,1 @@
-Just a beginner but will surely shine
+Just a beginner
